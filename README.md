@@ -5,3 +5,4 @@
 - Sou aluna do 1° ano do ensino médio. 📘
 - Estou em constante processo de aprendizagem. 🔄
 - Está página é para compartilhar meus projetos. 👥
+- Para compartilhar-mos informações. 🔤
